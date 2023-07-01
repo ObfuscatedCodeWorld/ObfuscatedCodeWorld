@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ObfuscatedCodeWorld
+- 👀 I’m interested in: Space, programming, video games and more.
+- 🌱 I’m currently learning: Not learning anything new except obfuscators.
+- 💞️ I’m looking to collaborate on: Currently not collaborating with others.
+- 📫 How to reach me: Add me on discord: SultraGamer#8295
